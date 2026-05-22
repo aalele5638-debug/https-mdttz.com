@@ -7,7 +7,7 @@
 
 ### 🚀 访问地址 (建议复制到浏览器打开)
 
-*   今日推荐地址： [https://mdttz20.com](https://mdttz20.com) 🔥
+*   今日推荐地址： [https://mdttz55.com](https://mdttz55.com) 🔥
 *   永久官方地址： [https://mdttz.com](https://mdttz.com) (需科学上网)
 
 ---
@@ -21,7 +21,7 @@
 
 ### 📩 防失联与技术支持
 
-*   自动获取最新地址： 请发送任意内容至邮箱 [mdttz666@gmail.com](mailto:mdttz666@gmail.com) 即可获取。
+*   自动获取最新地址： 请发送任意内容至邮箱(https://mdttz888@proton.me) 即可获取。
 
 ---
 
