@@ -7,7 +7,7 @@
 
 ### 🚀 访问地址 (建议复制到浏览器打开)
 
-*   今日推荐地址： [https://mdttz55.com](https://mdttz55.com) 🔥
+*   今日推荐地址： [https://mdttz16.com](https://mdttz16.com) 🔥
 *   永久官方地址： [https://mdttz.com](https://mdttz.com) (需科学上网)
 
 ---
